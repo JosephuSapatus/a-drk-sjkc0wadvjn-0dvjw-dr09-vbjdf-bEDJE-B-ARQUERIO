@@ -1,2 +1,1 @@
-# a-drk-sjkc0wadvjn-0dvjw-dr09-vbjdf-bEDJE-B-ARQUERIO
-BATAFRTATA5
+# PRO-C23-ArqueariaEpica-Modelo
